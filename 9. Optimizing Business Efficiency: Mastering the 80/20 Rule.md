@@ -1,4 +1,4 @@
-**Achieving More with Less: Applying the 80/20 Rule in Business**
+**Lesson 9: Achieving More with Less: Applying the 80/20 Rule in Business**
 
 Lesson 9 explores the principles of the 80/20 rule, also known as the Pareto Principle, in optimizing business efficiency:
 
